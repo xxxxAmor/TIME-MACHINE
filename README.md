@@ -54,7 +54,7 @@
 
 2006.12.30 [童颜俱乐部](https://www.bilibili.com/video/BV1qW411e7aW?from=search&seid=10114061967351970798)
 
-<img src="https://s1.ax1x.com/2020/08/11/aLbOfK.png" alt="aLbOfK.png" style="zoom:50%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aLbOfK.png" alt="aLbOfK.png" width=100px;" /> 
 
 2006.12.31 [MBC 歌谣大赛 开场嘉宾](https://www.bilibili.com/video/BV1EW411v7R6?p=1)
 

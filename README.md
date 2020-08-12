@@ -66,7 +66,7 @@
 
 2007.01.13 [GD&TOP"Show 音乐中心“ 一日MC](https://www.bilibili.com/video/BV1os411i7XZ?from=search&seid=2359304237140493015)
 
-<img src="https://s1.ax1x.com/2020/08/11/aLOSII.png" alt="aLOSII.png" style="zoom:85%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aLOSII.png" alt="aLOSII.png" width="475" /> 
 
 2007.01.13 [一辑初放送---"Show ！音乐中心“ (Dirty cash)](https://www.bilibili.com/video/BV11b41187BP?from=search&seid=9975289928370784501)
 
@@ -76,7 +76,7 @@
 
 2007.02.03 the real concert [权夫人与崔司机](https://www.bilibili.com/video/BV1Rs411h7FW?from=search&seid=6488906443441356067)
 
-<img src="https://s1.ax1x.com/2020/08/11/aLXguF.png" alt="aLXguF.png" style="zoom:43%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aLXguF.png" alt="aLXguF.png" width="475" /> 
 
 2007.02.03  [与小洙丽的第一次见面](https://www.bilibili.com/video/BV1Ws411R7GT?p=6)
 
@@ -84,11 +84,11 @@
 
 2007.02.24 [MBC 音乐中心初舞台--shake it](https://www.bilibili.com/video/BV11b41187BP?p=6)
 
-<img src="https://s1.ax1x.com/2020/08/11/aLjS8P.png" alt="aLjS8P.png" style="zoom:113%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aLjS8P.png" alt="aLjS8P.png" width="475" /> 
 
 2007.03.10 [校园突击](https://www.bilibili.com/video/BV1ys411B7Mq?from=search&seid=15145096066635721384)
 
-<img src="https://s1.ax1x.com/2020/08/11/aLjqzV.png" alt="aLjqzV.png" style="zoom:105%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aLjqzV.png" alt="aLjqzV.png" width="475" /> 
 
 2007.05.27 Live Concert Tour "Want you" 全国巡演首场-仁川
 
@@ -96,29 +96,29 @@
 
 2007.08.16 [M！CONUTDOWN一位----谎言](https://www.bilibili.com/video/BV11b41187BP?p=17)
 
-<img src="https://s1.ax1x.com/2020/08/11/aLxC7Q.png" alt="aLxC7Q.png" style="zoom:105%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aLxC7Q.png" alt="aLxC7Q.png" width="475" /> 
 
 2007.09.01 [MBC show 音乐中心第一周一位----谎言](https://www.bilibili.com/video/BV11b41187BP?p=23)
 
-<img src="https://s1.ax1x.com/2020/08/11/aLx6jf.png" alt="aLx6jf.png" style="zoom:105%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aLx6jf.png" alt="aLx6jf.png" width="475"/> 
 
 2007.09.09 [人气歌谣一位----谎言](https://www.bilibili.com/video/BV11b41187BP?p=29)
 
-<img src="https://s1.ax1x.com/2020/08/11/aLzzdg.png" alt="aLzzdg.png" style="zoom:102%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aLzzdg.png" alt="aLzzdg.png" width="475" /> 
 
 2007.11.04 21岁生日
 
 2007.11.17 [MKMF MUSIC AWARD---年度歌曲赏，男子组合赏，最佳编曲人奖](https://www.bilibili.com/video/BV1EW411v7R6?p=3)
 
-<img src="https://s1.ax1x.com/2020/08/11/aOSTmT.png" alt="aOSTmT.png" style="zoom:110%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aOSTmT.png" alt="aOSTmT.png" width="475"/> 
 
 2007.11.23 [音乐银行一位---最后的问候](https://www.bilibili.com/video/BV1Db411878x?from=search&seid=14004545743333467913)
 
-<img src="https://s1.ax1x.com/2020/08/11/aOpXVS.png" alt="aOpXVS.png" style="zoom:105%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aOpXVS.png" alt="aOpXVS.png" width="475" /> 
 
 2007.12.16 [人气歌谣一位---最后的问候](https://www.bilibili.com/video/BV1Db411878x?p=10)
 
-<img src="https://s1.ax1x.com/2020/08/11/aO9hLV.png" alt="aO9hLV.png" style="zoom:95%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aO9hLV.png" alt="aO9hLV.png" width="475" /> 
 
 2007.12.28-30  首尔 3rd live concert "The Great"
 
@@ -148,7 +148,7 @@
 
 2008.08.29 [音乐银行一位---一天一天](https://www.bilibili.com/video/BV1bb41187Wp?p=7)
 
-<img src="https://s1.ax1x.com/2020/08/11/aOFCYF.png" alt="aOFCYF.png" style="zoom:95%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aOFCYF.png" alt="aOFCYF.png" width="475" /> 
 
 
 
@@ -164,19 +164,19 @@
 
 2008.11.30 [人气歌谣一位---红霞](https://www.bilibili.com/video/BV1bb41187Wp?p=31)
 
-<img src="https://s1.ax1x.com/2020/08/11/aOkIPS.png" alt="aOkIPS.png" style="zoom:95%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aOkIPS.png" alt="aOkIPS.png" width="475" /> 
 
 2008.12.04 [M！CONUTDOWN一位安可---红霞](https://www.bilibili.com/video/BV1bb41187Wp?p=32)
 
-<img src="https://s1.ax1x.com/2020/08/11/aOAePO.png" alt="aOAePO.png" style="zoom:114%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aOAePO.png" alt="aOAePO.png" width="475" /> 
 
 2008.12.30 [SBS 歌谣大战  ](https://www.bilibili.com/video/BV1EW411v7R6?p=13)
 
-<img src="https://s1.ax1x.com/2020/08/11/aOEklQ.png" alt="aOEklQ.png" style="zoom:112%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aOEklQ.png" alt="aOEklQ.png" width="475" /> 
 
 2008.12.31 [MBC 歌谣大战联合舞台]( https://www.bilibili.com/video/BV1Rs41127uo?from=search&seid=12679253401695170490)
 
-<img src="https://s1.ax1x.com/2020/08/11/aOVB5V.png" alt="aOVB5V.png" style="zoom:115%;" /> 
+<img src="https://s1.ax1x.com/2020/08/11/aOVB5V.png" alt="aOVB5V.png" width="475" /> 
 
 
 

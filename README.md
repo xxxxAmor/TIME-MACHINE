@@ -438,7 +438,373 @@
 
 <img src="https://s1.ax1x.com/2020/08/11/aLM4KS.png" alt="aLM4KS.png" style="zoom:110%;" /> 
 
+#### <a href="2013">2013</a>
 
+2013.01.11 第27届日本金唱片大奖
+
+2013.01.12-01.13  ALIVE GALAXY TOUR 2012   大阪
+
+2013.01.16 第27届韩国金唱片大赏
+
+2013.01.21  同窗生 拍摄完成
+
+2013.01.25-01.27  ALIVE GALAXY TOUR 2012   首尔
+
+2013.01.28  FM 日本
+
+2013.02.12  VOGUE杂志拍摄
+
+2013.03.10 七哥演唱会
+
+2013.06.01 OOAK名古屋演唱会嘉宾
+
+2013.06.15 OOAK雅加达演唱会嘉宾
+
+2013.06.16 OOAK雅加达演唱会嘉宾
+
+2013.07.05 LV活动
+
+2013.07.20 WIN-who is next
+
+2013.09.04  电影《相面》首映会
+
+2013.09.20 新加坡 F1演唱会
+
+2013.10.09  深夜TV 
+
+2013.10.16 同窗生SHOWCASE
+
+2013.10.19 W KOREA杂志拍摄
+
+2013.10.29  同窗生VIP试映会
+
+2013.11.03  [running man]()
+
+2013.11.04  27岁生日
+
+2013.11.06 同窗生上映    [花絮合集](https://www.bilibili.com/video/BV1ZW411K71V?from=search&seid=11762771996180183705)      [舞台问候][https://www.bilibili.com/video/BV19x411p7Mz]
+
+2013.11.15 DOOM DADA发行
+
+2013.11.16 演艺家中介
+
+2013.11.16-11.17 BIGBANG TOUR日本蛋巡---西武巨蛋
+
+2013.11.22 [MAMA](https://www.bilibili.com/video/BV1Yx411B7ks?p=2)
+
+2013.11.29-2013.12.21 BIGBANG TOUR日本蛋巡
+
+2013.12.20 WINNER TV
+
+
+
+
+
+#### <a href="2014">2014</a>
+
+2014.01.02  老千二开机
+
+2014.01.04-01.13  BIGBANG TOUR日本蛋巡
+
+2014.01.24-01.26 2014  BIGBANG α 首尔
+
+2014.04.09  FROM TOP 发行    [DVD视频](https://www.bilibili.com/video/BV1Ts411m7SQ/?spm_id_from=333.788.videocard.5)      [FROM T.O.P EXHIBITION](https://www.bilibili.com/video/BV15x411b7HN)
+
+2014.4.12, 05.03.05.04  YG FAMILY 2014 WORLD TOUR IN JAPAN
+
+2014.06.07 釜山FM
+
+2014.07.17 [代言神魔之塔](https://www.bilibili.com/video/BV1yx41137sQ?p=5)
+
+2014.07.29 老千二 [发布会](https://www.bilibili.com/video/BV1Jx411z7Xs/?spm_id_from=333.788.videocard.1)
+
+2014.08.05 老千二 [SHOWCASE](https://www.bilibili.com/video/BV1Jx411z7S7/?spm_id_from=333.788.videocard.0)
+
+2014.08.25 老千二 [首映会](https://www.bilibili.com/video/BV1hx411z7Vm/?spm_id_from=333.788.videocard.6)
+
+2014.08.29 [A-NATION](https://www.bilibili.com/video/BV1rs411g7zp?p=1)
+
+2014.08.30  YG FAMILY 2014 WORLD TOUR 上海
+
+2014.09.03 老千二 上映
+
+2014.09.06-09.08  老千二 [舞台问候](https://www.bilibili.com/video/BV1Nx41117hm?from=search&seid=1995248590421325061)
+
+2014.09.12-09.14 YG FAMILY 演唱会
+
+2014.09.27 老千二首映见面会
+
+2014.09.28 老千二香港媒体见面会
+
+FM:https://www.bilibili.com/video/BV1Jb411w7Hq
+
+2014.10.04 [亚运会闭幕式](https://www.bilibili.com/video/BV1Us41167uo?from=search&seid=13534435991272130477)
+
+2014.11.04 28岁生日
+
+2014.11.15-12.07 BIGBNAG JAPAN DOME TOUR X 2014-2015
+
+2014.12.20-2014.12.27  [BIGBNAG JAPAN DOME TOUR X 2014-2015 东京](https://www.bilibili.com/video/BV1Vs411U79T)
+
+2014.12.30 2014青春选择盛典
+
+2014.12.31[新加坡跨年演唱会](https://www.bilibili.com/video/BV1Xs411d741?from=search&seid=18288945743315530998)
+
+#### <a href="2015">2015</a>
+
+2015.01.16-2015.01.18  [BIGBNAG JAPAN DOME TOUR X 2014-2015 大阪](https://www.bilibili.com/video/BV1SW411R765)
+
+2015.02.19 [东方卫视羊年春晚](https://www.bilibili.com/video/BV1ks411d7dr?p=5)
+
+2015.03.14 amFAR 慈善晚宴
+
+2015.04.17 MADE公布
+
+2015.04.25-04.26 MADE TOUR 首尔
+
+2015.04.20 [Esquire Korea ](https://www.bilibili.com/video/BV1as411Y7eH)
+
+[2015 BIGBANG TOUR [MADE] IN SEOUL DVD TOP个人机位](https://www.bilibili.com/video/BV1Ps411k7cC/?spm_id_from=333.788.videocard.12)
+
+2015.05.01 M--loser&bae bae音源发布
+
+2015.05.03 人气歌谣 [bae bae初舞台](https://www.bilibili.com/video/BV1gx411B7Rb/?spm_id_from=333.788.videocard.9)
+
+2015.05.07 MCD [loser](https://www.bilibili.com/video/BV1gx411B7Rb?p=2)&[bae bae](https://www.bilibili.com/video/BV1gx411B7Rb?p=3)
+
+2015.05.09 音乐中心一位  loser
+
+2015.05.10 人气歌谣一位 [loser](https://www.bilibili.com/video/BV1gx411B7Rb?p=4)
+
+2015.05.14 MCD一位  [Loser](https://www.bilibili.com/video/BV1gx411B7Rb?p=8)
+
+2015.05.15 音乐银行一位  [loser]()
+
+2015.05.16 [HAPPY TOGETHER]()
+
+2015.05.30-05.31  MADE TOUR 广州
+
+2015.06.01  A---We like 2 party &Bang Bang Bang音源发布    [COUNTDOWN LIVE](https://www.bilibili.com/video/BV1ax411V7Jd?p=1)
+
+2015.06.04  [We like 2 party ](https://www.bilibili.com/video/BV1gx411B7Rb?p=12)&[Bang Bang Bang](https://www.bilibili.com/video/BV1gx411B7Rb?p=11)初舞台     [花絮](https://www.bilibili.com/video/BV1Sp411Z7LD?p=22)
+
+2015.06.05 [柳熙烈的写生簿](https://www.bilibili.com/video/BV1gx411B7zW?from=search&seid=14453299756745456831)
+
+2015.06.05-06.06 MADE TOUR 北京
+
+2015.06.07 [running man](https://www.bilibili.com/video/BV1Bb411579L?from=search&seid=12160271817550542226)
+
+2015.06.11 MCD一位  [Bang Bang Bang](https://www.bilibili.com/video/BV1gx411B7Rb?p=13)   [安可](https://www.bilibili.com/video/BV1Sp411Z7LD?p=27)
+
+2015.06.13-06.14  MADE TOUR 香港
+
+2015.06.19-06.21 MADE TOUR 上海
+
+2015.06.26  MADE TOUR 大连
+
+2015.06.28 MADE TOUR 武汉
+
+2015.07.01 D--Sober&if you音源发布    [COUNTDOWN LIVE](https://www.bilibili.com/video/BV1ax411V7Jd?p=2)
+
+2015.07.09 MCD一位  Sober
+
+2015.07.11 音乐中心一位  sober
+
+2015.07.18,07.19,07,25,07.25,07.30 MADE TOUR 
+
+2015.08.01 E---zutter&Let's not fall in love音源发布          [COUNTDOWN LIVE](https://www.bilibili.com/video/BV1ax411V7Jd?p=3)
+
+2015.08.01 MADE TOUR 雅加达
+
+2015.08.04 naver
+
+2015.08.07 MADE TOUR 深圳
+
+2015.08.09 MADE TOUR 南京
+
+2015.08.09 人气歌谣 [Let's not fall in love](https://www.bilibili.com/video/BV1Sp411Z7LD?p=28)      [zutter](https://www.bilibili.com/video/BV1Sp411Z7LD?p=29)
+
+2015.08.14 MADE TOUR 成都
+
+2015.08.20 MCD一位 [zutter](https://www.bilibili.com/video/BV1gx411B7Rb?p=19)
+
+2015.08.22 音乐中心一位     [Let's not fall in love]
+
+2015.08.22 [A-nation](https://www.bilibili.com/video/BV1rs411g7zp?p=2)
+
+2015.08.25， 08.28, 08.30  MADE TOUR    [重庆](https://www.bilibili.com/video/BV16x411y7GZ/?spm_id_from=333.788.videocard.2)
+
+2015.09.16 [个人Vapp放送](https://www.bilibili.com/video/BV1MW411E7P3?p=3)
+
+2015.09.22 DAZED KOREA 
+
+2015.10.25-10.27 MADE TOUR 台北
+
+2015.10.02-10.13 MADE TOUR     [新泽西场](https://www.bilibili.com/video/BV1cs411o7Ut)
+
+2015.10.15 [全民超神](https://www.bilibili.com/video/BV1Ms411h7d1?from=search&seid=6728627979732960055)
+
+2015.10.20 [cass fresh广告](https://www.bilibili.com/video/BV1Js41197k8?from=search&seid=15636300134194201341)
+
+2015.10.23-10.25  MADE TOUR 澳门  [演唱会](https://www.bilibili.com/video/BV1ms411M7xc/?spm_id_from=333.788.videocard.0)      [DOOM DADA&生日应援](https://www.bilibili.com/video/BV1Fs411d7hX?from=search&seid=13672166577167026091)
+
+2015.10.28 secrect message制作发布会
+
+2015.11.02 secrect message开播    [花絮](https://www.bilibili.com/video/BV1i4411c7qN)    [幕后访问](https://www.bilibili.com/video/BV1fs411R7Z1)
+
+2015.11.04 29岁生日
+
+2015.11.07 [MMA四连冠](https://www.bilibili.com/video/BV1zt411v7U5?p=1)
+
+2015.11.12-11.28 MADE TOUR 日本
+
+2015.12.05-12.06 MADE TOUR名古屋
+
+[2015-2016 MADE IN JAPAN T.O.P 个人机位](https://www.bilibili.com/video/BV1Vx411W78Q/?spm_id_from=333.788.videocard.6)
+
+2015.12.18 [出席cass"year end party"](https://www.bilibili.com/video/BV1oW411B7Wc?from=search&seid=15636300134194201341)
+
+2015.12.31 [湖南卫视跨年演唱会](https://www.bilibili.com/video/BV1ox41157Y2/?spm_id_from=333.788.videocard.0)
+
+
+
+#### <a href="2016">2016</a>
+
+2016.01.01  FM 北京  [HillTOP](https://www.bilibili.com/video/BV1Lx411y7fG/?spm_id_from=333.788.videocard.0)      [乌托邦](https://www.bilibili.com/video/BV1Ux411479t)
+
+2016.01.09-01.11 BIGBANG WORLD TOUR MADE 大阪
+
+2016.01.18 CASS EVENT
+
+2016.1.20 第30届韩国金唱片盛典   [ALL CUT](https://www.bilibili.com/video/BV19s411R7gN)
+
+[音源本赏](https://www.bilibili.com/video/BV16s411R73b?p=2)     [大赏](https://www.bilibili.com/video/BV16s411R73b?p=5)    [表演](https://www.bilibili.com/video/BV19E411D7x7?from=search&seid=16820352430891380157)
+
+2016.01.23 DIOR
+
+2016.02.06-02.07 BIGBANG WORLD TOUR MADE 福冈
+
+2016.02.09  [Music Japan](https://www.bilibili.com/video/BV1Ts411Q7hC)
+
+2016.02.15 [魁！音乐的时间](https://www.bilibili.com/video/BV1Ds411B7pQ?from=search&seid=15924181056234952221)
+
+2016.02.17 [Goan Chart K-POP Awards](https://www.bilibili.com/video/BV1zt411v7U5?p=3)
+
+[BIGBANG ALL CUT](https://www.bilibili.com/video/BV1xs41197dK/?spm_id_from=333.788.videocard.1)
+
+2016.02.19  ARENA HOMME十周年特刊  [拍摄花絮](https://www.bilibili.com/video/BV17s41197HQ?from=search&seid=1088389732810106421)
+
+2016.02.23-02.24  BIGBANG WORLD TOUR MADE 东京
+
+2016.02.24 ANAN杂志三月刊
+
+2016.03.04-03.05  BIGBANG WORLD TOUR MADE 首尔  [个人机位](https://www.bilibili.com/video/BV1yC4y1p76w?from=search&seid=5651199990026203424)
+
+2016.03.11-03.12  2016 BIGBANG MADE  VIP TOUR 上海
+
+2016.03.13   2016 BIGBANG MADE  VIP TOUR 深圳
+
+2016.03.17  2016  BIGBANG MADE  VIP TOUR 郑州
+
+2016.03.19  2016  BIGBANG MADE  VIP TOUR 南京
+
+2016.03.20  2016  BIGBANG MADE  VIP TOUR 合肥
+
+2016.03.23 QQ音乐年度盛典     [舞台表演](https://www.bilibili.com/video/BV1js411X7jd?from=search&seid=2667350179951313067)     [领奖](https://www.bilibili.com/video/BV1DW411F71n?p=2)
+
+2016.03.24  2016  BIGBANG MADE  VIP TOUR 杭州
+
+2016.03.25  2016  BIGBANG MADE  VIP TOUR 南昌
+
+2016.03.26  2016  BIGBANG MADE  VIP TOUR 长沙
+
+2016.03.30  去德国拍摄电影
+
+2016.06.05 2016  BIGBANG MADE  VIP TOUR 天津
+
+2016.06.10  2016  BIGBANG MADE  VIP TOUR 佛山
+
+2016.06.11 [第19届上海国际电影节](https://www.bilibili.com/video/BV1Ex411j7jP/?spm_id_from=333.788.videocard.14)
+
+2016.06.12  2016  BIGBANG MADE  VIP TOUR  南宁
+
+2016.06.14 失控幽灵飞车     [媒体发布会](https://www.bilibili.com/video/BV19s411e74K/?spm_id_from=333.788.videocard.1)        [电影幕后花絮](https://www.bilibili.com/video/BV1GW411M7NR/?spm_id_from=333.788.videocard.17)
+
+2016.06.24  2016  BIGBANG MADE  VIP TOUR  哈尔滨
+
+2016.06.26  2016  BIGBANG MADE  VIP TOUR  大连
+
+2016.06.28 BIGBANG MADE十周年大电影舞台问候
+
+[MADE巡演大电影完整版](https://www.bilibili.com/video/BV1zs411X7PA)      [花絮](https://www.bilibili.com/video/BV1pW411b783/?spm_id_from=333.788.videocard.2)
+
+2016.06.30-07.01  2016  BIGBANG MADE  VIP TOUR 重庆
+
+2016.07.03 2016  BIGBANG MADE  VIP TOUR   成都
+
+2016.07.07-07.08  2016  BIGBANG MADE  VIP TOUR  广州
+
+2016.07.10 2016  BIGBANG MADE  VIP TOUR   徐州
+
+2016.07.12 2016  BIGBANG MADE  VIP TOUR   西安
+
+2016.07.13 2016  BIGBANG MADE  VIP TOUR   洛阳
+
+2016.07.15-07.17  2016  BIGBANG MADE  VIP TOUR   北京
+
+[TOPSGIRLS 饭拍2则](https://www.bilibili.com/video/BV1xW411i7zT)
+
+2016.07.21 2016  BIGBANG MADE  VIP TOUR   中山
+
+2016.07.22-07.24  2016  BIGBANG MADE  VIP TOUR   香港
+
+2016.07.25  公布与苏富比的合作
+
+2016.07.29-07.31  十周年演唱会  大阪
+
+2016.08.04  [BIGBANG 10 THE EXHIBITION A TO Z  LIVE TALK](https://www.bilibili.com/video/BV1oW41197FR?from=search&seid=14732242872583130151)
+
+2016.08.19  出道十周年
+
+2016.08.20 [十周年演唱会 首尔](https://www.bilibili.com/video/BV1vx411J7TG/?spm_id_from=333.788.videocard.7)          [十周年首尔首场 假装若无其事+DOOM DADA](https://www.bilibili.com/video/BV1kW411t7En)
+
+2016.08.27 [A-nation](https://www.bilibili.com/video/BV1rs411g7zp?p=3)
+
+2016.09.03-09.11 2016 BIGBANG MADE VIP TOUR 
+
+2016.09.19 [个人V LIVE](https://www.bilibili.com/video/BV1bs411t7d5/?spm_id_from=333.788.videocard.5)
+
+2016.09.20 [TTTOP X 苏富比 记者会](https://www.bilibili.com/video/BV1Ls411b7Pm/?spm_id_from=333.788.videocard.0)
+
+2016.09.23 阿修罗VIP试映会
+
+2016.10.02 2016 BIGBANG MADE VIP TOUR 新加坡
+
+2016.10.03 TTTOP拍卖专场
+
+2016.10.22 2016 BIGBANG MADE VIP TOUR 夏威夷
+
+2016.11.04  30岁生日
+
+2016.11.05-12.11 BIGBANG JAPAN DOME TOUR 2016
+
+[BIGBANG 10 THE CONCERT IN JAPAN THE FINAL - SPECIA  FEATURES  ](https://www.bilibili.com/video/BV1sW411z7MV/?spm_id_from=333.788.videocard.1)
+
+2016.12.12 MADE LIVE直播 音源公开   [COUNTDOWN LIVE](https://www.bilibili.com/video/BV1ax411V7Jd?p=4)
+
+2016.12.17 [无限挑战](https://www.bilibili.com/video/BV1Us411e77a?from=search&seid=4583585768147742930)
+
+2016.12.18 人气歌谣初舞台    [FXXK IT](https://www.bilibili.com/video/BV1DW411D7N5?p=3)    [Last dance](https://www.bilibili.com/video/BV1DW411D7N5?p=4)
+
+2016.12.19 MASTER试映会
+
+2016.12.21 [黄金渔场](https://www.bilibili.com/video/BV1Gs41157aj?from=search&seid=1797632993870654941)
+
+2016.12.26 SBS歌谣大战  [组合表演](https://www.bilibili.com/video/BV1xs411Y7WX?p=2)     [D.I.S.C.O](https://www.bilibili.com/video/BV1ib411P76A/?spm_id_from=333.788.videocard.9)
+
+2016.12.27 人气歌谣一位 fxxk it
+
+2016.12.27-12.29  BIGBANG JAPAN DOME TOUR 2016大阪
 
 
 
